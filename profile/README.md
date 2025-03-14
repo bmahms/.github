@@ -4,7 +4,7 @@ Si alguna vez te has preguntado cuál es el propósito de la vida o cómo encont
 
 Diseñado para jóvenes y adultos que buscan algo más que acción o aventuras sin sentido, **Lifes** ofrece una experiencia transformadora que te ayudará a crecer emocionalmente y a entender mejor el mundo que te rodea.
 
-- #  [Descarga Lifes 1.3.6](https://apkmodjoy.net/es/) 📥📲
+- #  [Descarga Lifes 9.0.28.123 ](https://apkmodjoy.net/es/) 📥📲
 
 ## ¿Qué es Lifes?
 
